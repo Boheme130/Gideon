@@ -1,7 +1,7 @@
 ## Gideon
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://media.newyorker.com/photos/5bad454ba51c1f2c4f834429/master/pass/181008_r32955.jpg)
+![avatar](https://www.coolaccidents.com/sites/g/files/g2000010276/files/trench%2520parody.jpg)
 <br>
 <br>
 
