@@ -1,7 +1,7 @@
 ## Gideon
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://4columns.org/img/column/fateman_salmantoor_2.jpg)
+![avatar](https://media.newyorker.com/photos/5bad454ba51c1f2c4f834429/master/pass/181008_r32955.jpg)
 <br>
 <br>
 
@@ -10,7 +10,7 @@
 作者：Lily Morton <br>
 评分：4.75/5 <br>
 
-一个明星的诞生：从一身五病，“我不为txl表演”深柜的三毒艺人，到在疗养期间爱上护士，为爱在电视出柜后演艺事业崩塌，夫夫相濡以沫，柳暗花明实现事业第二春
+一个明星的诞生：从一身五病，“我不为txl表演”深柜的三毒艺人，到在疗养期间爱上护士，为爱在电视出柜后演艺事业崩塌，差点断气八年之际成功with上老男人，柳暗花明实现现象级回春
 
 *Lily Morton的书真的总是一股浓浓的圣诞/春节贺岁电影的感觉。前几部的人物反复客串，结局不仅仅是HE，而且把HE写得非常全面，所有人物都有结局，会补很多番外和后记，而且必有主角几年后甚至十年后的片段，这真的是良心作家*
 
